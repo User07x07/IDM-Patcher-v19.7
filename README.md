@@ -1,0 +1,1 @@
+# IDM-Patcher-v19.7
